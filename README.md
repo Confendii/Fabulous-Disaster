@@ -1,5 +1,1 @@
-![1000005473](https://github.com/user-attachments/assets/19db8539-6cd0-4cd3-a797-0468135cafaa)
-* hi im Sophia
-* if you see me say hi, i look forward
-  to meeting new friends!
-
+[Sophia Playlist](https://open.spotify.com/playlist/1w3cFM5hirSb6BWN5GjPor?si=ob8PvqHQTVCrFmtQ9hzvFw&pi=_32zBiEeRTO4T/).
